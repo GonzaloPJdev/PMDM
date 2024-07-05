@@ -1,3 +1,0 @@
-# GUÍA DINEOJUEGO
-
-
